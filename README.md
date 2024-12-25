@@ -1,4 +1,4 @@
-![logo](https://github.com/Chirayukulkarni/Chirayukulkarni/blob/main/github-header-image.png)  
+![logo](https://github.com/Chirayukulkarni/Chirayukulkarni/blob/main/github-header-image%20(1).png)  
 
 
 
