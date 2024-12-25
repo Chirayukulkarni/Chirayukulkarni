@@ -1,4 +1,4 @@
-   
+![logo](https://github.com/vaishnavik-09/vaishnavik-09/blob/main/github-header-image%20(1).png)    
 
 
 <h1 align="center">Hi 👋, I'm Chirayu kulkarni</h1>
